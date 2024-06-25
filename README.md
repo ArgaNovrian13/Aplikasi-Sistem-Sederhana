@@ -1,1 +1,8 @@
 ![image](https://github.com/ArgaNovrian13/Aplikasi-Sistem-Sederhana/assets/131507254/a6515cc2-ddc6-4a28-b13c-6c193d164e78)
+![image](https://github.com/ArgaNovrian13/Aplikasi-Sistem-Sederhana/assets/131507254/f2d44e2f-2fe4-4ef1-8d9d-8e7b006537d9)
+![image](https://github.com/ArgaNovrian13/Aplikasi-Sistem-Sederhana/assets/131507254/696c5478-327c-477d-bdd2-f5d089be6318)
+![image](https://github.com/ArgaNovrian13/Aplikasi-Sistem-Sederhana/assets/131507254/ff0e3955-f376-4c4c-9637-59a3f36434e8)
+![image](https://github.com/ArgaNovrian13/Aplikasi-Sistem-Sederhana/assets/131507254/2cf641b2-7607-4140-8c70-e385e331d6ff)
+![image](https://github.com/ArgaNovrian13/Aplikasi-Sistem-Sederhana/assets/131507254/2b77bc42-91fb-4f5d-ad9f-c14762f537d7)
+![image](https://github.com/ArgaNovrian13/Aplikasi-Sistem-Sederhana/assets/131507254/b549c5a3-46dd-4edb-8711-5e04190450c5)
+![image](https://github.com/ArgaNovrian13/Aplikasi-Sistem-Sederhana/assets/131507254/4029388a-ebaa-487e-9d25-c5446e7dfe8e)
